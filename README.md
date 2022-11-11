@@ -1,1 +1,0 @@
-# detadrop.github.io
